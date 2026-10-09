@@ -7,3 +7,5 @@ not even humans are all in the world\
 we r a entire ecosystem
 we are a part of the world, not just in there to live and enjoy, we also have to be the worlds
 IT KEEPS 0 DAAANG
+Okay I made it
+yea i think it is installed
